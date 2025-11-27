@@ -1,1 +1,4 @@
-just copy the code and enjoyy
+hope you will enjoy the game,
+   😌
+  <))>
+  _|\_
